@@ -1,3 +1,3 @@
 # goods
 nothing
-good friend is zxp
+good friend is zxp！！！！
